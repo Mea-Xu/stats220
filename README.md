@@ -1,7 +1,7 @@
 # stats220
-this repo will just be a lot of random stuff
+this repo will have **a lot of** random stuff
 
-*I'm just a girl*
+*Cause, I'm just a girl, oh, little old me*
 
 ### Oi, go
 1. Oi, more passion, more passion, more passion
@@ -11,4 +11,5 @@ this repo will just be a lot of random stuff
 
 
 
-## **Cat meme**
+## if you have any question, here is the answer for you
+[answer that you never knew you needed](https://www.generatormix.com/random-answer-generator?number=4)
