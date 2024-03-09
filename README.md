@@ -1,7 +1,7 @@
 # stats220
 this repo will just be a lot of random stuff
 
-*I will try make it nicer*
+*I'm just a girl*
 
 ### Oi, go
 1. Oi, more passion, more passion, more passion
